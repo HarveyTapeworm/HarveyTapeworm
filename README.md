@@ -14,7 +14,7 @@ dni <img width="408" height="133" alt="Снимок экрана 2026-01-03 0922
 
 ![3675b8da362e8fa5f38b4a2feed84ac7](https://github.com/user-attachments/assets/5d8d19ae-3291-49c6-81ca-2ed6189b8dfe)
 
-**Homestuck FD, don't even fucking subscribe to my GitHub. I'll ban you instantly. If my nickname says "HOMESTUCK - DNFI" but I'm wearing the Eridan skin OR ANY HOMESTUCK SKIN, that means I'm just wearing a skin that's 2 or 3 years old. I haven't been in the fandom for a long time.**
+**Homestuck FD, don't even fucking subscribe to my GitHub. I'll ban you instantly. If my nickname says "HOMESTUCK - DNFI" but I'm wearing the Eridan skin OR ANY HOMESTUCK SKIN, that means I'm just wearing a skin that's 2 or 3 years old. I haven't been in the fandom for a long time.** BUT! I can make an exception for you if you are a Will Wood fan or are in any FD I am in.
 
 By the way, I always support victims, as long as it doesn't involve my hyperfixations (the same MSI), so if you've been accused of something, please don't be surprised if I stop talk with you.
 
@@ -55,4 +55,8 @@ PLS TELL ME IF U FEEL UNCOMFORTABLE WHEN I NEED TO STFU IN SRS WAY!!!!! i say a 
 <img width="849" height="296" alt="image" src="https://github.com/user-attachments/assets/fb3ed755-e9a7-4e84-bfdd-611e3c9bd02a" />
 
 # NYX JUST A BABY!!!!!!!!!!!!!! #fuckskinstealer!!!
+
+---
+
+# im lying a lot and im a hypocrite. also I remember ALL messages. Literally. If you've been accused of anything, I'll have no problem giving the person who accused you absolutely everything about you. Please don't trust me with anything that could potentially ruin your reputation.The only people I love are the ones I trust.
 
