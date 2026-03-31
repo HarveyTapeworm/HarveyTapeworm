@@ -60,5 +60,5 @@ PLS TELL ME IF U FEEL UNCOMFORTABLE WHEN I NEED TO STFU IN SRS WAY!!!!! i say a 
 
 ---
 
-# im lying a lot and im a hypocrite. also I remember ALL messages. Literally. If you've been accused of anything, I'll have no problem giving the person who accused you absolutely everything about you. Please don't trust me with anything that could potentially ruin your reputation.The only people I love are the ones I trust.
+# I have some attachment issues and am drawn to people with terrible personalities. Don't be surprised if I sit with someone who has a document written against them or show a desire to communicate with them. I blame myself for this, but I can't do anything about it.
 
