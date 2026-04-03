@@ -48,6 +48,8 @@ did u know im not deadpool kinnie/local
 
 PLS TELL ME IF U FEEL UNCOMFORTABLE WHEN I NEED TO STFU IN SRS WAY!!!!! i say a lot of weird shit!!!!!
 
+im lonely asf. so if u have a permission of c + h i will always ask for permissions first.
+
 # ***My social battery drains in literally 10-20 minutes and sometimes takes a very long time to charge. Please take this into account.***
 ---
 
