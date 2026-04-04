@@ -64,5 +64,5 @@ im lonely asf. so if u have a permission of c + h i will always ask for permissi
 
 ---
 
-# I have some attachment issues and am drawn to people with terrible personalities. Don't be surprised if I sit with someone who has a document written against them or show a desire to communicate with them. I blame myself for this, but I can't do anything about it.
+# I have some attachment issues and am drawn to people with terrible personalities. Don't be surprised if I sit with someone who has a document written against them or show a desire to communicate with them. I blame myself for this, but I can't do anything about it.THIS ALSO MEANS THAT IF YOU HAVE A TERRIBLE PERSONALITY AND YOU ARE A CREEP, THEN I WILL TRY TO MAKE FRIENDS WITH YOU. Thank you for understanding.
 
