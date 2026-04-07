@@ -1,6 +1,7 @@
 i love stealing cherrys, grapes, etc
 I STOLED TONEY STRAWPAGE!!! /J
-![31d3903e5a0d339990df68e9e042afa9](https://github.com/user-attachments/assets/2cd8fd45-7628-4fca-bd56-426a1d0b8a07)
+<img width="1631" height="891" alt="Снимок экрана 2026-04-07 092046" src="https://github.com/user-attachments/assets/d7532639-c205-4bb0-8a1f-9035ff69b795" />
+
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=green" alt="Счетчик просмотров профиля GitHub">
