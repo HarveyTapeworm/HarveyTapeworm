@@ -1,4 +1,4 @@
-# my fuckinfg mental state isnt good im sorry i really dont want to int with some1 expect some people 
+<img width="259" height="194" alt="images" src="https://github.com/user-attachments/assets/186cfc03-0443-4973-b644-b755e947613f" />
 
 
 STOLED cpn-cook STRAWPAGE!!! /J ratsrats.straw.page CHECK TO MAKE SURE!!!!!
