@@ -23,3 +23,5 @@
 </div>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=You're+pointless+as+Rapunzel+with+fuckin'+cornrows;You+write+normal%3F+Fuck+bein'+normal!&width=850&size=20&color=8B0000&center=false&align=right&pause=1500)](https://git.io/typing-svg)
+
+# still wip!!
