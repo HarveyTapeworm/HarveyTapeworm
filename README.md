@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="<img width="480" height="270" alt="ly peace out! ig @therealstanmitchell" src="https://github.com/user-attachments/assets/87ee390d-6ec1-4ac2-bcdd-c993aa2180a9"/>" width="100%" alt="Описание гифки">
+  <img src="https://github.com/user-attachments/assets/4c915ebf-4117-4d5b-a361-7dd8efdb3d0b" width="100%">
 </p>
+
 
 
 <div align="center">
