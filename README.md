@@ -1,7 +1,5 @@
-<div align="center">
-  <img src="https://github.com" width="100%">
-  <img src="https://github.com" width="100%">
-</div>
+![](https://github.com)
+![](https://github.com)
 
 
 <div align="center">
