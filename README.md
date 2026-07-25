@@ -1,5 +1,7 @@
+# im a little in depression so iwc pls ty
 
-im back! ill do this shitty gh i swear
+
+ill do this shitty gh i swear
 
 im hiding everyone with h*mestuck skin. and no, ill not unhide you
 
