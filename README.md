@@ -1,5 +1,4 @@
-# у меня была депрессия тревожность но потом ко мне пришел Мкс. Бин в автобусе он сидел рядом со мной я скзал "привет маленький кролик что ты делаешь в автобусе!" и моя депрессия и все недуги вылечились Мкс. Бин
-
+# GOOSEWORKSX & HER PROJECTS FANS DO NOT FUCKING INTERACT. 
 ill do this shitty gh i swear
 
 im hiding everyone with h*mestuck skin. and no, ill not unhide you
