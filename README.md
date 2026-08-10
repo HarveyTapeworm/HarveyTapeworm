@@ -1,4 +1,5 @@
-# GOOSEWORKSX & HER PROJECTS FANS DO NOT FUCKING INTERACT. 
+# 04:27 PM[will wood . pub chat is off] all russophobes should know that if they are against bullying, but insult russians simply because they are russian, that is bullying
+
 ill do this shitty gh i swear
 
 im hiding everyone with h*mestuck skin. and no, ill not unhide you
