@@ -1,4 +1,4 @@
-# 04:27 PM[will wood . pub chat is off] all russophobes should know that if they are against bullying, but insult russians simply because they are russian, that is bullying
+# TONY UR GITHUB ISNT COOL MY IS MUCH COOLIER 😈😈😈😈
 
 ill do this shitty gh i swear
 
